@@ -1,0 +1,1 @@
+![EmpresaMinera.jpeg]()
